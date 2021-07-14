@@ -6,6 +6,7 @@ SQL file is included
 SCSJ4383 - 01
 
 Group Power Rangers:
+
 NOOR `ALIAH `AFIFAH BINTI MOHD ISHAK 
 
 NUR ATHIRAH BINTI MANAF 
